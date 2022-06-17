@@ -1,13 +1,6 @@
 - 👋 Hi, I’m @Melrosee288
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Melrosee288/Melrosee288 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 💞️ I’m looking to collaborate on ... ending this corruption 
+- 📫 How to reach me ... 7405069033
 18 months of the worst experience of my life because of Amazon and I no longer feel safe, I no longer have a feeling of comfort or happiness. Amazon.com took the person I once was and turned me into someone I barely recognize.. Amazon has done me so wrong in so many ways and the MANY employees that know exactly what they have done, know just how true that statement is. 
 
 Better Business Bureau of Western Washington has let me down tremendously… that BBB branch has a person who is in charge of all Amazon complaints (which now that I think about it that is extremely unfair that one person gets to have a say in all Amazon complaints at that branch.. she is without a single doubt in my mind on their payroll in my opinion) banned me from all services at that branch because i held them to their own words when another employee at that branch told me that “ALL BBB Accredited businesses must follow every rule and guideline set to remain an accredited business or they have to be removed. I even asked if it was an option if they follow them and I was told “no they have to, if they don’t they will be removed” so I can and have proven that Amazon has lied in their responses to my BBB & Washington State Attorney General complaints. The BBB National Programs refuses to remove them and the person in charge of all Amazon complaints with the BBB does not care at all despite proof they have not followed all rules and guidelines set what so ever and ignores everything. That branch also deletes every comment I make on their public fb page and then blocks me from private messaging them as well and from further commenting on their public fb posts. I was trying to get help and holding them to their own words because yes I believe EVERY BBB ACCREDITED BUSINESS SHOULD BE HELD TO THE SAME STANDARDS & NO FAVORITISM! I used to turn to the BBB for help trusting their word, honesty & integrity. I turned to the BBB and put my trust into their system and they failed me repeatedly. 
